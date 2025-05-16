@@ -58,7 +58,9 @@ Enabled targeted marketing and risk segmentation strategies
 
 Likhitha S
 Email: likhithasridhar08@gmail.com
+
 LinkedIn: linkedin.com/in/likhitha-s-12144323b
+
 GitHub: github.com/Likhitha-S806
 
 📌 Keywords
